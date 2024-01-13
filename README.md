@@ -2,7 +2,7 @@
 - 👀 I’m interested in IT life
 - 🌱 I’m currently learning DS and Machine learning
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me uroosk@gmail.com
+- 📫 How to reach me uroosk33@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Too muscular for a programmer
 
